@@ -1,1 +1,1 @@
-i am samuel otieno minterested in webdevelopment and writing clean codes
+i am samuel otieno interested in web development and writing clean codes
